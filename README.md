@@ -1,2 +1,2 @@
 # SadayahDavis.github.io
-This is the Official website of Sadayah Isaac Davis
+This is the official website of Sadayah Isaac. Davis
